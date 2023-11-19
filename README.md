@@ -24,8 +24,6 @@ https://order.mandarake.co.jp/order/detailPage/item?itemCode=1075679721
 
 https://www.suruga-ya.jp/product/detail/ZHOU29890
 
-https://www.suruga-ya.jp/product/detail/ZHOU74823
-
 https://www.suruga-ya.jp/product/detail/ZHOU77639
 
 https://www.suruga-ya.jp/product/detail/ZHOU28322
