@@ -50,4 +50,4 @@ https://www.suruga-ya.jp/product/detail/XA22433
 
 https://www.suruga-ya.jp/product/detail/XA20718
 
-https://order.mandarake.co.jp/order/detailPage/item?itemCode=1167728860
+https://www.suruga-ya.jp/product/detail/XA22404
